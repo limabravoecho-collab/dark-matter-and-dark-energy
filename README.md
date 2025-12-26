@@ -1,4 +1,4 @@
-# Resolution: Dark Matter and Dark Energy
+# Dark Matter/Energy: Resolution via Systemic Parameters
 
 This resolution is designed to meet the requirements of the core indivisible component of the problem. I avoided adding other information that will branch off to other questions/systems.
 
